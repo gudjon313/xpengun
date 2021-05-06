@@ -29,7 +29,7 @@ No they dont but at least it _**rhymes**_
 # I nutted inside your mom
 ## Yeah!
 **Eyy**
-# I nuttet inside your mom
+# I nutted inside your mom
 ## Woah
 _Alright, here we go_
 > Its a long summer, winset i love you so much
